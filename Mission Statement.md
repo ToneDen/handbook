@@ -1,5 +1,5 @@
 # Mission Statement
 
-## Our mission is to empower everyone to own their identity online.
+## Our mission is to empower artists to build stronger relationships with their fans.
 
-We build a secure standard of identity for businesses to replace passwords, allowing users to have an authentic and personal relationship with the technology they use. Our core values guide our strategies and individual actions so that we create a company whose character is as radical as its product.
+Our platform helps artists grow and connect with their fans. We believe that by adding value to the relationship between the creator and the fan we can empower how the modern musician can successfully build a career today. Our values and actions as individuals and a single unit are designed to fuel the passions we have in transforming the industry. 
